@@ -1,22 +1,22 @@
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/Habib-2024)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg' alt='facebook' height='40'>](https://www.facebook.com/https://www.facebook.com/224HaBiB?mibextid=ZbWKwL)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/https://www.instagram.com//)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/twitter.svg' alt='twitter' height='40'>](https://twitter.com/https://x.com/HaBiB10224?t=2xtOvARldGexxhEIWx1kww&s=09)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/youtube.svg' alt='YouTube' height='40'>](https://www.youtube.com/channel/https://youtube.com/@inspireloop-o7p?si=TbSnVjJtc4TjrqdR)  
 
-### Assalamu Alaaikum,
-### This is Habib
-#### I am a Student
-![I am a Student](https://x.com/HaBiB10224/header_photo)
+### ❤️ Assalamu Alaaikum,
+### ❤️This is Habib
+#### ❤️I am a Student
+❤️![I am a Student](https://x.com/HaBiB10224/header_photo)
 
-I'am a student Studying computer science and engineering department. Want to change myself through hard work. I want to do something for common man. I prefer milk tea, not colored tea.
+❤️I'am a student Studying computer science and engineering department. Want to change myself through hard work. I want to do something for common man. I prefer milk tea, not colored tea.
 
-Skills: html / C / C# / Python / DS
+❤️Skills: html / C / C# / Python / DS
 
-- 🔭 I’m currently working on Student 
-- 🌱 I’m currently learning DS 
-- 👯 I’m looking to collaborate on github 
-- 🤔 I’m looking for help with planing my upcoming project 
-- 💬 Ask me about Python and DS 
-- 📫 How to reach me: outlook10224@gmail.com 
-- 😄 Pronouns: habi 
-- ⚡ Fun fact: The human brain is capable of generating approximately 23 watts of power when awake, which is enough to power a small light bulb! 
+- 🔭 I’m currently working on Student ❤️
+- 🌱 I’m currently learning DS ❤️
+- 👯 I’m looking to collaborate on github ❤️
+- 🤔 I’m looking for help with planing my upcoming project ❤️
+- 💬 Ask me about Python and DS ❤️
+- 📫 How to reach me: outlook10224@gmail.com ❤️
+- 😄 Pronouns: He❤️
+- ⚡ Fun fact: The human brain is capable of generating approximately 23 watts of power when awake, which is enough to power a small light bulb! ❤️
 
 
 
